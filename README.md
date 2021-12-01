@@ -18,3 +18,16 @@ Apenas pueda hacer Output rush (creo que en lvl 50) inscríbase en todos los que
 Inscríbase en toda invasión que vea, dan muchos cobres y azoth.
 
 Piense que la gente que va niveles sobre usted está metiéndole duro a subir las habilidades para hacer materiales legendarios para hacer armaduras y armas lejendarias y usted es ese proveedor, piense que esos playera ya hacen guerras y venden cosas normalmente por más de 1000 osea, ya hay más cobres y usted es el que les va a proveer esos materiales.
+
+# ¿Quieres verte fancy rápido?
+
+Si ya pagas subscripción a Amazon Prime puedes obtener estos "content packs", mensualmente sacan algo divertido. Aquí algunos ejemplos:
+
+Freddy Fancy
+
+![Freddy fancy](assets/img/photo_2021-11-30_19-14-52.jpg)
+
+Freddy Hippie
+
+![Freddy hippie](assets/img/photo_2021-11-29_15-59-17.jpg)
+
